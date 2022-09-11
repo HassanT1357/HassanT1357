@@ -1,0 +1,3 @@
+- 👋 Heyo, I’m @HassanT1357
+- 👀 I’m an Engineering Science student at UofT
+- 🌱 I love cities and am an avid Hyperloop and rocketry enthusiast. Most of my work here will be for the UofT Aerospace Team or Hyperloop team!
